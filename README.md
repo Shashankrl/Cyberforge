@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/7b3a2875-39c1-4e5b-ba9e-b213ae12fd56)# Cyberforge
+# Cyberforge
 Team Prafulla Chandra ray
 <br>
 <br>
